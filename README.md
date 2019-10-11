@@ -6,3 +6,4 @@ This was made with HTML5(canvas), CSS and JavaScript.
 
 ## Short Glance
 ![](https://gfycat.com/grouchyfearlessisabellineshrike.gif)
+![](https://thumbs.gfycat.com/GrouchyFearlessIsabellineshrike-mobile.mp4)
